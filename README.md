@@ -6,5 +6,7 @@ I have acquired experience and skills by working in different countries and in v
 For refreshing up my knowledge and skills I recently joined and completed the Data Analytics Bootcamp from University of California (Davis). Some projects I did while attending the bootcamp are in my GitHub page. Please take a look and if you have any suggestions for my GitHub page, feel free to reach me at davekiran@gmail.com
 
 Thanks,
+
 Kiran Dave.
+
 Folsom, California.
